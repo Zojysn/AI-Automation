@@ -40,5 +40,3 @@ Inside our community, I show you:
 * Word-for-word scripts to close premium deals
 * Real examples of my $10k+ builds
 * The psychology behind why clients happily pay more
-
-Get your free trial here (closing soon): https://www.skool.com/masterclass-marketing
